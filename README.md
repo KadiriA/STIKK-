@@ -1,3 +1,3 @@
 # STIKK-
-shembujt ne STIKK
+shembujt ne STIKK/n
 A u lodhe a jo? 
