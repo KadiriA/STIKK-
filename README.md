@@ -1,0 +1,2 @@
+# STIKK-
+shembujt ne STIKK
